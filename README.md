@@ -1,0 +1,2 @@
+# Meritokrasi
+mericoin
